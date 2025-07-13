@@ -6,3 +6,4 @@
 - ken shimura (late)
 - マツコ・デラックス
 - Ryuji Akiyama
+- SANDWICHMAN / サンドイッチマン
