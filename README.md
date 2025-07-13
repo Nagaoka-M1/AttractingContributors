@@ -10,3 +10,4 @@
 - Nara Park(Nara)
 - Yamato Saidaiji(Nara)
 - Nara Park
+- Green land (Kumamoto)
